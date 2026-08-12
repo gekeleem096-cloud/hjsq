@@ -1,0 +1,27 @@
+海角社区官网永久域名：https://hjsq2.co
+
+海角社区最新入口：https://b852d.bvhzkfhxe.cc
+
+海角社区中转入口：https://hjsq.co
+
+失联后如何获取最新地址：
+
+方法1：邮箱发送任意邮件至 官方邮箱可获取最新地址
+
+牢记官方邮箱：huijiadelu109@gmail.com
+
+方法2：关注 海角社区 Twitter：https://x.com/hjsq_co
+
+方法3：加入 海角社区 Telegram公告频道：https://t.me/hjsqncom
+
+近期热瓜鉴升版：吉林高颜值嫩妹 杨晨曦 私拍裸照视频曝光 为包包卖身金主 狂野自慰骚到爆
+
+https://hjsqn.com/archives/513/
+
+联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
+
+投稿问题反馈 👉 huijiadelu109@gmail.com
+
+常见问题：
+
+网址打不开？？？ 1. 请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩） 2.请拷贝完整地址到浏览器访问，防止恶意劫持请带上 https:// 3.更换浏览器为 Alook浏览器、edge浏览器、Chrome浏览器 4.下载科学上网工具：蚂蚁加速器 https://780.slaloxaq.xyz （禁止直接点击访问）请复制链接粘贴到浏览器 请把网址或者QQ群分享给身边有需要的人，您的转发、分享是我们前进的动力 😎👈
