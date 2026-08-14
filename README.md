@@ -1,6 +1,6 @@
-海角社区官网永久域名：https://hjsq2.co
+海角社区官网永久域名：https://hjsqn.com/
 
-海角社区最新入口：https://b852d.bvhzkfhxe.cc
+海角社区最新入口：https://fe328.07wl6.cc
 
 海角社区中转入口：https://hjsq.co
 
@@ -14,9 +14,9 @@
 
 方法3：加入 海角社区 Telegram公告频道：https://t.me/hjsqncom
 
-近期热瓜鉴升版：AI成人短剧 无能的老公 男主阳痿吃药还是两分钟就结束 老婆只能默默流泪
+近期热瓜鉴升版：私拍大神约萝莉林书辞 超清纯少女蕾丝白袜自慰 粉嫩小穴流出了阵阵淫水
 
-[https://hjsqn.com/archives/513/](https://hjsqn.com/archives/3534/)
+https://hjsqn.com/archives/3536/
 
 联系我们： 商务合作 🤝 https://a7k9x.bvueg3-t1t1.icu?channel=XHWJ001
 
