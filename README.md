@@ -2,7 +2,7 @@
 
 海角社区最新入口：https://hjsq2.co/
 
-海角社区中转入口：https://hjsq.co
+海角社区中转入口： https://hjsq2.co/
 
 失联后如何获取最新地址：
 
